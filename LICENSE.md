@@ -1,4 +1,4 @@
-#  
+#  Experience blue lock rivals like never before with blue lock rivals elite Scripts, the #1 Script. Includes no clip and aimbot for unbeatable
 
 
 
